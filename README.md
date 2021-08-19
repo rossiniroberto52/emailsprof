@@ -5,3 +5,4 @@ quimica diego: diego.pereira@colegiomotivo.com.br
 ariane lab linguagens: arianne.silva@colegiomotivo.com.br
 silviateres@hotmail.com
 andre.filho2@colegiomotivo.com.br
+cybelletelles@hotmail.com ou cybelletelles@gmail.com
