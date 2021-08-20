@@ -9,3 +9,4 @@ cybelle geo: cybelletelles@hotmail.com ou cybelletelles@gmail.com,
 iscarlet pt-lab: istarletdemelo@gmail.com,
 cidadenia: luciana.russell@colegiomotivo.com.br,
 julio fisica: julio_cristovam@hotmail.com,
+lucas mat financeira: lucasgabryel@gmail.com
