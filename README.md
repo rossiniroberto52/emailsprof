@@ -10,3 +10,5 @@ iscarlet pt-lab: istarletdemelo@gmail.com,
 cidadenia: luciana.russell@colegiomotivo.com.br,
 julio fisica: julio_cristovam@hotmail.com,
 lucas mat financeira: lucasgabryel@gmail.com
+lab ling(alternativo) papaisnatalia@gmail.com
+cida(bio): mcidaafernandes@gmail.com
