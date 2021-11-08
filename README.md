@@ -13,3 +13,4 @@ lucas mat financeira: lucasgabryel@gmail.com
 lab ling(alternativo) papaisnatalia@gmail.com
 cida(bio): mcidaafernandes@gmail.com,
 email para mandar provas do colegio: AM@colegiomotivo.com.br
+artes(se n me engano kk) sivia teres: siviaterez@hotmail.com
